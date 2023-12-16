@@ -1,0 +1,2 @@
+# Pythonda-qiziqarli-o-yinlar
+ 
